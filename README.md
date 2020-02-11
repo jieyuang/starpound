@@ -11,4 +11,5 @@ No exception?
 If you feel threadened because of your size, 
 shouldn't you just combine with others and 
 fight for your survivel?
-Or are you worrying about your threatened monopoly?
+
+Or you rather want to worry about your threatened monopoly?
